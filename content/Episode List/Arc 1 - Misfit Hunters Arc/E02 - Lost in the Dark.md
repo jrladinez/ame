@@ -1,0 +1,10 @@
+---
+tags:
+  - SessionJournals
+---
+
+## Synopsis
+
+After having brought Brenshaw to some semblance of his senses, the party find themselves encircled by a trio of displacer beasts that immediately extinguish one of their lanterns and attack the party. After a brief battle (during which Maximon is magically aged up ten years by one of the beasts), one of the beasts makes the mistake of targeting Brenshaw, who immediately retaliates with what Ari'ka immediately recognizes as no less than Power Word: Kill. She immediately warns the group that they shouldn't antagonize him any more than necessary. Krug immediately goes to interact with him, but Brenshaw seems to fall back into the same stupor he was in before. The party raids the crypts within the tomb and find a good amount of gems and a handful of healing potions, as well as an artfully crafted hammer. When they regroup with each other, they find Brenshaw speaking with some sort of shadow that immediately leads him out of the cave and into the darkness.
+
+Ari'ka immediately takes a lantern from Ladion and rushes after after the pair, leaving Ladion in the darkness, though he is able to maintain himself. The rest of the party chases after them from the cave and in the direction of the ship, though not without first being led into a field of more shadowy creatures. During the chase, Gallow is left behind and slowly overtaken by both the darkness and the shadow creatures. One knocks him unconscious just as the party catch up to Brenshaw and are once again surrounded, this time by shadows. Amethyst shoots down the shadow standing over Gallow as Melodious and Wander try to rescue him. Ari'ka joins them and teleports Gallow back to the rest of the party, where Krug sees his body and enters a rage. Gallow is able to leave his final words with Krug before Amethyst confirms that Gallow has passed. The party takes his body aboard the ship and begin the trip out of the Shadowfell, but as they leave, Ari'ka notices a light in the distance.

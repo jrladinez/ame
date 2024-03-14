@@ -1,0 +1,24 @@
+---
+tags:
+  - SessionJournals
+---
+
+## Synopsis
+
+During the journey back to the Astral Bounty Claims Department, some of the crew are plagued with restless sleep. 13 hears the voice of the Weapon in his recurring nightmare, while Melodius is informed by his patron, the Composer, that he is ready to meet with Pistos. Meanwhile, Krug is overcome with grief and dread but comforted by the doll, Sefina, who he prays over.
+
+When the crew arrive, they are greeted by the starstruck patrons of the ABCD, who watch as they turn their bounty in to Annie. Annie declares the bounty complete, as well as that the bounties on the crew's heads have been lifted. She also requests that the crew give an official name, and after some deliberation, the crew offers their name: The Astral Sea Slayers, now officially bound as a crew. 
+
+Pistos approaches the newly-freed crew with a new job, this time offered by The Composer himself. She also informs the crew that Pistos, who had been under investigation for stealing from the Slayers, had fled the station entirely. After explaining the job, Pistos speaks with Ari'ka privately. Pistos admits to knowing about Ladion and about Krug knowing about The Traitor, and that the reason she had been secretive was because she sees Ari'ka as a daughter and that she was hoping to protect Ari'ka from her obsession with revenge.
+
+After briefing with Pistos, the crew briefly splits to attend to different errands. Ladion and Ari'ka set off to speak with Hector - who Ladion insists might know something about the Abolethic Sovereignty - with Amethyst following along to ensure that the two don't come to blows. At the same time, Krug attends to sneak away, but is noticed by Amethyst, who sets 13 about keeping an eye on him. Unattended, Morana and Melodius return to the ABCDT.
+
+Krug, who had snuck away to focus on his weapon and the whispers it speaks into his mind, is berated by the weapon for being useless, and after accidentally attacking 13 when 13 had startled him, he reveals that he's been hearing voices in his head and begs for 13 to keep it a secret. 13 agrees and, in attempting to lead Krug to ESE Magic where the rest of the crew are, gets lost and ends up coming across the shipwright, Hobby. Hobby takes some interest in 13, who apparently reminds him of a deceased loved one from his home sphere. At the same time, the curse appears to be further spreading, infecting Krug with an unsettling and deeply uncharacteristic nihilism.
+
+Melodius, back at the ABCDT, runs back into **Sherina**, the bugbear woman he had previously battled during his last incident. Despite a tense reintroduction, Sherina informs the bar's patrons that Melodius (and the crew) are alright, and requests a rematch. Melodius instead convinces her to battle Morana, who against all odds, is able to defeat Sherina in a musician's duel that cause the tavern to erupt into a roaring party. In the process, Melodius is promised a meeting with the tavern's owner.
+
+Ladion and Ari'ka speak telepathically to avoid Amethyst's watchful ears, and Ladion explains that she had left the Abolethic Sovereignty because she hadn't known what they were doing, to which Ari'ka replies that "just following orders" is not good enough of an excuse. When they reach the store, they secure a private conversation with Héctor, who explains that he had known Ladion from previous dealings with the Sovereignty, and while he has only extremely vague information, he has some small idea where any remaining members might be, even though most supposedly died out long ago.
+
+The crew eventually reconvenes back at the ABCDT where the party continues to rage on and everyone explains most of what had happened. When everyone eventually falls asleep, they are woken by the Composer, who draws them into his realm and offers them each a favor. Amethyst, Ari'ka, 13, and Morana all try to ask about their pasts and are given some vaguely cryptic answer with the promise of more if they complete a favor for him in return. Krug also asks, and in the process finds that Sefina had, all this time, contained Gallow's soul, who emerges from the doll and cleanses Krug of his curse. Krug informs the rest of the crew of his backstory, of how he'd been a bodyguard to a king who had passed away, and how his brother had been nearly killed in the following ceremonial combat, and finally that his brother's soul had been transferred into the warforged body that the crew had originally met.
+
+The Composer then explains what he would like in return: that he is in search of a new deva, and that one must be created from an individual of immense prodigious talent. One is marked on a world controlled by a lich so powerful that even the Composer finds difficulty in reaching this world. Despite Ari'ka's visible distrust, when the Composer opens a portal to this world, the crew runs through and finds themselves in a world overrun by the undead.
